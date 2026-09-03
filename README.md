@@ -1,3 +1,3 @@
 #                                                😂😂😂 PRANKED!!! 😂😂😂
 
-![Funny Picture](93f6e634-5c30-4b92-bbc8-e7cb539921fe.jpg)
+![Funny Picture](c3651446-5e92-416e-be0c-78efbd3a79d5_Original.jpeg)
